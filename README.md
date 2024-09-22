@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing at the moment I am just looking to vibe and learn some new things :)
 - 📫 You can reach me on discord @ frog_tea_dont_mind_me
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love to read and listen to all types of music. I have a different playlist for every activity and mood.
+- ⚡ Fun fact: I love to read, astronomy/astrology, and listen to all types of music. I have a different playlist for every activity and mood. 
 
 <!---
 frog-tea-dont-mind-me/frog-tea-dont-mind-me is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
